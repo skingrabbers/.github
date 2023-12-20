@@ -15,6 +15,6 @@ Whether you're looking to enhance your trading strategy or simply passionate abo
 
 ## Learn more
 
--   **Website**: Check out [our website](https://skingrabbers.com)!.
+-   **Website**: Check out our website: [skingrabbers.com](https://skingrabbers.com)!.
 -   **X**: Follow us [@SkinGrabbersCS](https://twitter.com/SkinGrabbersCS) for updates and announcements.
 -   **Email**: For inquiries, email us at [inquiries@skingrabbers.com](mailto:inquiries@skingrabbers.com).
