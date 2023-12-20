@@ -2,7 +2,7 @@
 
 ## About Us
 
-Skin Grabbers is at the forefront of innovation in the Counter-Strike skin market. Our team is dedicated to developing the most advanced skin sniping tools, designed to give traders and collectors a serious edge in the acquisition of some of the best deals, and rarest items on the market.
+Skin Grabbers is at the forefront of innovation in the Counter-Strike skin market. Our team is dedicated to developing the most advanced skin sniping tools, designed to give traders and collectors a serious edge in the acquisition of some of the best deals and rarest items on the market.
 
 ## What We Offer
 
